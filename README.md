@@ -5,4 +5,4 @@
 Just read my carrds atp, idk how to design ts D:
 
 
-$${\color{blue}Blue}$$
+$${\color{blue}HI \ LIVISSS}$$
